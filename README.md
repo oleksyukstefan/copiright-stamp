@@ -1,0 +1,1 @@
+# copiright-stamp
